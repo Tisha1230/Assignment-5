@@ -9,6 +9,6 @@ Q.3 Link: https://youtu.be/IlcXaENBEhU
 
 Q.4 Link: https://youtu.be/0p1_B7v-C8I
 
-Q.5 Link:
+Q.5 Link: https://youtu.be/r-MGz-IjpiM
 
-Q.6 Link:
+Q.6 Link: https://youtu.be/PJ5xUnugOII
